@@ -28,7 +28,9 @@ chui-tracy / chuihuibuqi / 吹灰不起 / 黑邪 / 黑邪同人 / 黑邪 github
 If you searched:
 - chui-tracy github  
 - 吹灰不起 github  
-- 黑邪 github  
+- 黑邪 github
+- 黑邪 吹灰不起
+- all邪 吹灰不起
 
 👉 Please visit my new account:  
 https://github.com/chuihuibuqi
