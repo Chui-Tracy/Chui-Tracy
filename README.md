@@ -3,10 +3,10 @@
 
 ⚠️ This GitHub account **chui-tracy** is no longer active.
 
-👉 My new GitHub profile:  
+👉 My NEW GitHub profile 新的主页:  
 https://github.com/chuihuibuqi
 
-## 📂 黑邪作品仓库
+## 📂 黑邪txt存放处：
 👉 https://github.com/chuihuibuqi/Xie
 
 ---
