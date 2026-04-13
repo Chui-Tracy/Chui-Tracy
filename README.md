@@ -4,7 +4,7 @@
 ⚠️ This GitHub account **chui-tracy** is no longer active.
 
 👉 My NEW GitHub profile 新的主页:  
-- https://github.com/chuihuibuqi
+📂 https://github.com/chuihuibuqi
 
 ## 黑邪/all邪 - txt存放处：
 📂 https://github.com/chuihuibuqi/Xie
