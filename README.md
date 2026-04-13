@@ -1,16 +1,31 @@
 ## Hi there 👋
+# This account has moved
 
-<!--
-**Chui-Tracy/Chui-Tracy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⚠️ This GitHub account **chui-tracy** is no longer active.
 
-Here are some ideas to get you started:
+👉 My new GitHub profile:  
+https://github.com/chuihuibuqi
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## About
+
+- Former username: **chui-tracy**  
+- Current username: **chuihuibuqi**  
+- Also known as: **吹灰不起**  
+
+This account has been renamed and all content has moved to the new profile.
+
+---
+
+## Keywords
+
+chui-tracy / chuihuibuqi / 吹灰不起 / 黑邪 / 黑邪同人 / 黑邪 github  
+
+If you searched:
+- chui-tracy github  
+- 吹灰不起 github  
+- 黑邪 github  
+
+👉 Please visit my new account:  
+https://github.com/chuihuibuqi
