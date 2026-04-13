@@ -6,6 +6,9 @@
 👉 My new GitHub profile:  
 https://github.com/chuihuibuqi
 
+## 📂 黑邪作品仓库
+👉 https://github.com/chuihuibuqi/Xie
+
 ---
 
 ## About
